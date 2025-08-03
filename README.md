@@ -13,4 +13,9 @@
 -After completing my maths proficiency test,there was a lunch break.Then went with my friends to eat someting.
 
 # 1:00pm to 2:00pm
--After lunch break,i went to auditorium.There i listen to an expert lecture given by Dr.Arshdeep Singh on Food:A pivotal role in the student's overall wellness.
+-After lunch break,i went to auditorium.There a group of Satya Scholarship program visited and told us that they run a program where they help those student by giving them scholarship who cannot pay their college fees or who are financially weak.The group members name were   
+
+
+
+
+There i listen to an expert lecture given by Dr.Arshdeep Singh on Food:A pivotal role in the student's overall wellness.
