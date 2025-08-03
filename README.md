@@ -10,12 +10,12 @@
 # 10:30am to 11:30am 
 -After completing my english proficiency test,i will give my maths proficiency test.
 # 11:30am to 1:00 pm
--After completing my maths proficiency test,there was a lunch break.Then went with my friends to eat someting.
+-After completing my maths proficiency test,there was a lunch break.Then i went with my friends to eat something.
 
 # 1:00pm to 2:00pm
--After lunch break,i went to auditorium.There a group of Satya Scholarship program visited and told us that they run a program where they help those student by giving them scholarship who cannot pay their college fees or who are financially weak.The group members name were   
+-After lunch break,i went to auditorium.There a group of Satya Scholarship program visited and told us that they run a program where they help those student by giving them scholarship who cannot pay their college fees or who are financially weak.The group members name were Manoj Kumar,Manesh Kumar,Shivam Sharma.They told me that i can apply this scholarship by visiting buddy4study site and then i can apply for this scholarship.
+-it is also such a great social service that program is giving scholarship to a lot of students who are financially weak and they also target to give this scholarship to a lot of students to help them.
 
+# 2:00pm to 3:00pm 
+-Then after knowing about this scholarship there i listen to an expert lecture given by Dr.Arshdeep Singh on Food:A pivotal role in the student's overall wellness.He taught me about a lot of this that can help me to get a good health.
 
-
-
-There i listen to an expert lecture given by Dr.Arshdeep Singh on Food:A pivotal role in the student's overall wellness.
