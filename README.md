@@ -6,11 +6,11 @@
 
 ## Day 2 
 # 9:30am to 10:30am
--On my day 2,i directly went to Applied Science department to give my english proficiency test.
+-On my day 2,i went directly to the Applied Science department to give my english proficiency test.
 # 10:30am to 11:30am 
--After completing my english proficiency test,i give my maths proficiency test.
+-After completing my english proficiency test,i will give my maths proficiency test.
 # 11:30am to 1:00 pm
--After completing my maths proficieny test,there was a lunch break.Then i with my friends went to eat someting.
+-After completing my maths proficiency test,there was a lunch break.Then went with my friends to eat someting.
 
 # 1:00pm to 2:00pm
 -After lunch break,i went to auditorium.There i listen to an expert lecture given by Dr.Arshdeep Singh on Food:A pivotal role in the student's overall wellness.
