@@ -11,8 +11,8 @@ Our day  started with the lecture by the respected sir  Dr.Jatinder Singh who ta
 ## Day 4
 This day began with the lecture of the P2P class given by our senior who taught us about the basics of  C++ language.Then a lecture of English was given by prof.Manjot Kaur.After this lecture our break began.Then we went to the auditorium where a lecture 2 was given on Universal Human Value by Priya Darshni mam.Then a session of causmic club was began in which our senior told us about causmic club in which we can do a lot of activities.
 
-
-
+## Day 5 
+This day started with the lecture of the BEEE class by prof.Harminder Kaur.Then a lecture of chemistry was given by prof.Mandeep Kaur.These two lectures taught us a lot of things .Then after break we went for our ID formation.
 
 
 
