@@ -17,8 +17,9 @@ This day started with the lecture of the BEEE class by prof.Harminder Kaur.Then 
 ## Day 6 
 One more day started with the lecture of chemistry by prof.Mandeep kaur.Then a lecture of math was given by prof.Gagandeep kaur.Then after a break in Auditorium  lectures was given by Dr. Arvind Dingra sir,Mr.Jasvir Singh sir and Dr.lakhvir singh sir.They taught us a lot about the college websites and many more things about college.
 
+## Day 7 
 
-
+Our day started with the lecture of Dr.Amit kamra sir who taught us about Digital marketing and told us about DMC(Digital Marketing Club).Then a lecture was given by Dr.Parminder Singh sir who told us about college college clubs and societies.Then a lecture was given by Dr.Randhir Singh sir who told us about the conduct of the examination and about exam related information.Then after break there was  lecture of BEEE class by prof. Harminder Kaur in which we learn a lot of things.Then a lecture of P2P class was given by our seniors which they taught us about C++ language.With the ending of this lecture our day ends.
 
 
 
