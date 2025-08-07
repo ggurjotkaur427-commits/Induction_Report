@@ -14,7 +14,8 @@ This day began with the lecture of the P2P class given by our senior who taught 
 ## Day 5 
 This day started with the lecture of the BEEE class by prof.Harminder Kaur.Then a lecture of chemistry was given by prof.Mandeep Kaur.These two lectures taught us a lot of things .Then after break we went for our ID formation.
 
-
+## Day 6 
+One more day started with the lecture of chemistry by prof.Mandeep kaur.Then a lecture of math was given by prof.Gagandeep kaur.Then after a break in Auditorium  lectures was given by Dr. Arvind Dingra sir,Mr.Jasvir Singh sir and Dr.lakhvir singh sir.They taught us a lot about the college websites and many more things about college.
 
 
 
