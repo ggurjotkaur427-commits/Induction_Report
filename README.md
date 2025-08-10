@@ -19,10 +19,10 @@ One more day started with the lecture of chemistry by prof.Mandeep kaur.Then a l
 
 ## Day 7 
 
-Our day started with the lecture of Dr.Amit kamra sir who taught us about Digital marketing and told us about DMC(Digital Marketing Club).Then a lecture was given by Dr.Parminder Singh sir who told us about college college clubs and societies.Then a lecture was given by Dr.Randhir Singh sir who told us about the conduct of the examination and about exam related information.Then after break there was  lecture of BEEE class by prof. Harminder Kaur in which we learn a lot of things.Then a lecture of P2P class was given by our seniors which they taught us about C++ language.With the ending of this lecture our day ends.
+Our day started with the lecture of Dr.Amit kamra sir who taught us about Digital marketing and told us about DMC(Digital Marketing Club).Then a lecture was given by Dr.Parminder Singh sir who told us about college college clubs and societies.Then a lecture was given by Dr.Randhir Singh sir who told us about the conduct of the examination and about exam related information.Then after break there was  lecture of BEEE class by prof. Harminder Kaur in which we learn a lot of things.Then a lecture of P2P class was given by our seniors which they taught us about C++ language.
 
 ## Day 8
-Our day began with the session given by Mrs.Shaffy Makker on the topic Millets super food.In this session we got to know about different types of millets and how millets can cure even those diseases which cannot be cured by medicines.We got to know a lot of things about millets.After this there was a l
+Our day began with the session given by Mrs.Shaffy Makker on the topic Millets super food.In this session we got to know about different types of millets and how millets can cure even those diseases which cannot be cured by medicines.We got to know a lot of things about millets.After this there was a lecture of maths given by Prof. Gagandeep kaur.
 
 
 
